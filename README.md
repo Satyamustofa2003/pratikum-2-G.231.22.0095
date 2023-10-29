@@ -1,1 +1,1 @@
-# pratikum-2-G.231.22.0095
+Kecerdasan Buatan 2 G.231.22.0095
